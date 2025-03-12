@@ -1,0 +1,1 @@
+A modest farming village east of [[Nitrestone]] and seated on the edge of the [[Narrow Forest]]. The village closest to the [[The Realm]]'s HQ. Mostly seen as a brief stopping point for the other eastern villages before arriving to [[Nitrestone]]. 

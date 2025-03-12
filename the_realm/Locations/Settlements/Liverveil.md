@@ -1,0 +1,1 @@
+A simple village that is the last stop before the [[Western Road]],  that leads to [[Drore]].

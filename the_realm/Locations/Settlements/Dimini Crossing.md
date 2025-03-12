@@ -1,0 +1,1 @@
+This larger town is houses the only real crossroads in the region and thus boasts the largest market Outside of [[Nitrestone]]. 

@@ -1,0 +1,1 @@
+the southwest inhabited area of Contria. The main city of this region is [[Nitrestone]]

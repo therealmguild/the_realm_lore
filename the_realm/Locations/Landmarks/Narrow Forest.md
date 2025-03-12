@@ -1,0 +1,1 @@
+A forest of some note, with some dungeons and various small villages as the danger in this area is manageable for a seasoned adventurer. 

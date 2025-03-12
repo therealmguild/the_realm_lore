@@ -1,0 +1,1 @@
+A modest guild, based out of [[Dimini Crossing]]. They focus on scouting missions and various escort missions in the surrounding areas. 

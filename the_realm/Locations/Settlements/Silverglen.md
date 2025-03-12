@@ -1,0 +1,1 @@
+The premier fishing hamlet that operates with other smaller coastal cities. 

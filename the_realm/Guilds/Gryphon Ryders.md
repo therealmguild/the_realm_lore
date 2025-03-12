@@ -1,0 +1,1 @@
+One of the premier adventure guilds of [[Flat Harbor]], known for their elite members being gifted gryphons that allow them to be the fastest guild in the area in terms of responding to mission quests. 

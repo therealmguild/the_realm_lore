@@ -1,0 +1,1 @@
+one of two lakes that feeds into the [[Murky River]]. Rumor that the nearby dungeon holds key or cause to the polluted lake and feeding river. 

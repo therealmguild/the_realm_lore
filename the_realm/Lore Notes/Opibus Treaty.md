@@ -1,0 +1,1 @@
+A treaty among the vying nations and city-states that wished to claim and settle the new continent of [[Contria]].  

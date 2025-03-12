@@ -1,0 +1,1 @@
+A lumber village that gather its good from the [[Narrow Forest]] to its south and the [[Ash Wilds]] to its north.

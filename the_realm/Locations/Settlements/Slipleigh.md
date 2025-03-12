@@ -1,0 +1,1 @@
+An established hamlet that boasts the best farming lands in [[Flat Harbor]] and even a modest fishing operation as well. 

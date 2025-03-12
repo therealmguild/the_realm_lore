@@ -1,0 +1,1 @@
+A dense and mostly unexplored forest that blocks the [[Flat Harbor]] region and [[Olkburn]]. 

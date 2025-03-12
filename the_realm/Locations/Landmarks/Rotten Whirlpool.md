@@ -1,0 +1,1 @@
+A miasma of a lake in [[The Rotting Swamp]]. The wildlife in these parts are hardly edible, requiring the most steady hand and a capable chief. While it has not been seen in years, a black dragon has attacked any ship that dares to stray too far from shore and shallow waters.

@@ -1,0 +1,1 @@
+A hamlet that gained vast prosperity as it is able to mine the valuable minerals in the foothills of [[The Mithril Strait]]. 

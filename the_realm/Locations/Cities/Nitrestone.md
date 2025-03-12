@@ -1,0 +1,1 @@
+The main city of [[Flat Harbor]] and host to three members of [[The Contria Council]]. It lays southeast of [[The Mithril Strait]] and the Murk River bisects the City. It operates mostly as a trading city and where first rate guilds operate from, such as the [[Gryphon Ryders]]. 

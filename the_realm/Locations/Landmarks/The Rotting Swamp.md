@@ -1,0 +1,1 @@
+A dangerous swamp full of dungeons and foul monstrosities. [[Rotten Whirlpool]] resides in these parts. 

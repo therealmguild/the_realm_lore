@@ -1,0 +1,1 @@
+The sole village that survives in [[The Rotting Swamp]]. These hardy people are distrusting of outsiders and give final say on any guild that may wish to operate in this area.

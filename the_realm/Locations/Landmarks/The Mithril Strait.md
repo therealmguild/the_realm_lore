@@ -1,0 +1,1 @@
+A mountainous region that houses giantkind and a whole host of dangerous [[Impetus Dungeons]]. Only the most experienced adventuring parties would fare in these lands. the foothills are mined by the hearty population of [[Chastenworth]] of valuable minerals. 

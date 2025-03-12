@@ -1,0 +1,1 @@
+Seated between [[West Basin]] and [[East Basin]]'s rivers that feed into the [[Murky River]]. A large town that boasts the most guilds as the danger of all surrounding areas requires that level of active adventurers. Also the [[North Road]] heads from here through the [[Ash Wilds]].
